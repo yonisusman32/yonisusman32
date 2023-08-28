@@ -5,6 +5,6 @@
 - 📫 How to reach me ...g534yertm tyzry rereal uieytj ty
 t4245432 eke6kfkhrte u hkj
 <!---ryu
-yonisusman32/yonisusman32 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+yonisusman32/yonisusman32 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub hrttr  profile.
 You can click the Preview link to take a look at your changes.
 --->
