@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...gewwwh rthrthrtgewrgerg ysry4 ys syyu ret
-- 📫 How to reach me ...g534yertm tyzry rereal uieytj ty
+- 📫 How to reach me ...g534yertm tyzry rereal uieytj ty udtsrsre
 t4245432 eke6kfkhrte u hkj
 <!---ryu
 yonisusman32/yonisusman32 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub hrttr  profile.
