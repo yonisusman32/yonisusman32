@@ -1,7 +1,7 @@
  - 👋 Hi, I’m @yonisusman32
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...jreer j sj rtsj
-- 💞️ I’m looking to collaborate on ...gewwwh rthrthrtgewrgerg ysry4 ys syyu ret
+- 💞️ I’m looking to collaborate on ...gewwwh rthrthrtgewrgerg ysry4 ys syyu rett rtjrtt
 - 📫 How to reach me ...g534yertm tyzry rereal uieytj ty udtsrsre
 t4245432 eke6kfkhrte u hkj
 <!---ryu
